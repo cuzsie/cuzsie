@@ -4,7 +4,7 @@
 - i made that one raldis crackhouse mod lol
 - c#, haxe, VERY PARTIAL html and lua, scratch developer in 2017 :)
 
-- [gamejolt (go check out my games n mods!!!)[https://gamejolt.com/@CuzsieGames]
+- [gamejolt (go check out my games n mods!!!)](https://gamejolt.com/@CuzsieGames)
 - [gamebanana (mostly alt links for the stuff on my gj](https://gamebanana.com/members/1833894)
 - [youtube (i do goofy videos sometimes)](https://youtube.com/cuzsie)
 - [twitter (random bullshit and wips)](https://twitter.com/cuzsie)
