@@ -22,3 +22,5 @@ Discord is 'cuzsie' in case you need to contact me!
 <br>
 
 [Youtube](https://youtube.com/cuzsie) | [Twitter](https://twitter.com/cuzsie) | [GameJolt](https://gamejolt.com/@cuzsie) | [GameBanana](https://gamebanana.com/members/1833894)
+
+![cuzman](pcpng.png)
