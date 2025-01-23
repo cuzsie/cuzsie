@@ -16,6 +16,8 @@
 
 <br>
 
+I have a very barebones [website](https://cuzsie.github.io) (it's literally just links....) but it's going to be updated! (when I get motivation to, that is)
+
 Discord is 'cuzsie' in case you need to contact me!
 
 <br>
